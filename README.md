@@ -1,4 +1,3 @@
-# summerinternship2025_22IT128
 # 🌟 Summer Internship 2025 – 22IT128
 
 **Name**: Prajapati Vrijesh Harshadbhai  
